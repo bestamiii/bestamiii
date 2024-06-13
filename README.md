@@ -1,3 +1,6 @@
 - 💬 Ask me about:
 - continental philosophy
 - political discussions above political happenings
+- classical physics
+- rap music
+- Turkish culture and intellectualism
